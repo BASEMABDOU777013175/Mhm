@@ -1,1 +1,1 @@
-[https://trumpcoin.space](https://trumpcoin.space)
+[https://barroncoin.space](https://barroncoin.space)
